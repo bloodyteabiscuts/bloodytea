@@ -5,9 +5,7 @@ i lurk often near/in bakery, docks, or games at docks, dont be shy to say hi ok
 
 innatentive adhd & heavily suspected [SzPD](https://en.wikipedia.org/wiki/Schizoid_personality_disorder)
 
-remake in the process, depends on how i feel
-
-feel free 2 int/c+h unless name says so, plz ask first so i dont get spooked ok
+alt is [@bloodyteabiscuts](https://github.com/bloodyteabiscuts) first so i dont get spooked ok
 
 rly defensive over ameferryman and klaus, plz dont talk abt them to me unless you're a friend of mine
 
