@@ -5,7 +5,7 @@ i lurk often near/in bakery, docks, or games at docks, dont be shy to say hi ok
 
 innatentive adhd & heavily suspected [SzPD](https://en.wikipedia.org/wiki/Schizoid_personality_disorder)
 
-alt is [@bloodyteabiscuts](https://github.com/bloodyteabiscuts), follow back if u want
+alt is [@teabiscuts](https://github.com/teabiscuts), follow back if u want
 
 free c+h, unelss name says so. IM A YAPPER WHEN U TALK TO ME, sorry in advance methings
 
