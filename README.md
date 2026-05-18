@@ -7,7 +7,7 @@ innatentive adhd & heavily suspected [SzPD](https://en.wikipedia.org/wiki/Schizo
 
 alt is [@bloodyteabiscuts](https://github.com/bloodyteabiscuts), follow back if u want
 
-free c+h, unelss name says so.
+free c+h, unelss name says so. IM A YAPPER WHEN U TALK TO ME 
 
 rly defensive over ameferryman and klaus, plz dont talk abt them to me unless you're a friend of mine
 
