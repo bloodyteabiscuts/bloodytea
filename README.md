@@ -1,7 +1,7 @@
 
-mike or ameferryman, i go by no pronouns, he/its for friends/followed
+mike or ameferryman, i go by no pronouns, he/its for friends/followed.
 
-i lurk often near/in bakery, docks, or games at docks, dont be shy to say hi ok
+i lurk often near/in bakery. dnirn is dni unless redname/friend LUL
 
 innatentive adhd & heavily suspected [SzPD](https://en.wikipedia.org/wiki/Schizoid_personality_disorder)
 
