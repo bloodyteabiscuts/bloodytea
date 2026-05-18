@@ -11,9 +11,7 @@ free c+h, unelss name says so. IM A YAPPER WHEN U TALK TO ME, sorry in advance m
 
 rly defensive over ameferryman and klaus, plz dont talk abt them to me unless you're a friend of mine
 
-And isn't this exactly where you'd like me?
-I'm exactly where you'd like me, you know,
-praying for love in a lap dance /lyr
+I AM A MINOR I AM A MINOR I AM 13+ 17- DNIUID ADULTS!! also sign ata
 
 [rentry](https://rentry.co/ancientwounds) [atabook](https://bloodytea.atabook.org/) [strawpage](https://bloodyteabiscuts.straw.page/) [prns.page](https://en.pronouns.page/@bloodytea) [prns.cc](https://pronouns.cc/@bloodytea)
 
