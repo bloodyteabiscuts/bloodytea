@@ -1,17 +1,31 @@
-
 mike or ameferryman, i go by no pronouns, he/its for friends/followed.
+  
+innatentive adhd & heavily suspected schizoid personality disorder
 
-i lurk often near/in bakery. dniurn is dni unless redname/friend LUL
+rly defensive over ameferryman and klaus, if i talk abt them or if u do idm tho...
 
-innatentive adhd & heavily suspected [SzPD](https://en.wikipedia.org/wiki/Schizoid_personality_disorder)
+minor, 13+, 17- . dniuid adults
+
+<details closed>
+<summary>ponytown</summary>
+
+i lurk often near bakery.
+
+always w2i unless my name says so
+
+free c+h, unelss name says so, i talk A LOTTTT if ur a friend of mine
 
 alt is [@teabiscuts](https://github.com/teabiscuts), follow back if u want
 
-free c+h, unelss name says so. IM A YAPPER WHEN U TALK TO ME, sorry in advance methings
+dni: pro/darkship/fiction, irls. (<ins>*kins/supportive ids that're not problematic are ok!!!*</ins>), 
 
-rly defensive over ameferryman and klaus, plz dont talk abt them to me unless you're a friend of mine
+caution: pt fandoms in general except historical ones, fruitcake shippers, roblox cosplayers unless i int first, yumeshippers that i dont int with beforehand!
 
-I AM A MINOR I AM A MINOR I AM 13+ 17- DNIUID ADULTS!! also sign ata
+int: g&b cosplayers, bloodytea/teabiscuts shippers, those r my otp ships. 
+
+i m still growing, i can make mistakes,,,,, PLZZZ DONT BULLY ME IF I DO
+
+</details>
 
 [rentry](https://rentry.co/ancientwounds) [atabook](https://bloodytea.atabook.org/) [strawpage](https://bloodyteabiscuts.straw.page/) [prns.page](https://en.pronouns.page/@bloodytea) [prns.cc](https://pronouns.cc/@bloodytea)
 
