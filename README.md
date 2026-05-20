@@ -29,6 +29,8 @@ i'm always having public chat off, ALWAYS W2I unless my name says different.
 
 i m still growing, i can make mistakes, plz dont let that stop u from being my friend
 
+i dont block unless i need to, i'll likely block chat/requests. im paranoid when someone has "i block freely" in their bio :(
+
 </details>
 
 <details closed>
