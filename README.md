@@ -1,4 +1,4 @@
-mike or ameferryman, i go by no pronouns, he/its for friends/followed.
+mike or ameferryma or mayhaps valentine. i go by no pronouns, he/its for friends/followed.
   
 innatentive adhd & heavily suspected schizoid personality disorder
 
