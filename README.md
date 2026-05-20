@@ -6,6 +6,8 @@ rly defensive over ameferryman and klaus, if i talk abt them or if u do idm tho.
 
 minor, 13+, 17- . dniuid adults
 
+![](https://files.catbox.moe/w9jmrs.gif)
+
 <details closed>
 <summary>ponytown</summary>
 
