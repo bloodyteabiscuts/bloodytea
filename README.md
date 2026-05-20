@@ -11,7 +11,7 @@ minor, 13+, 17- . dniuid adults
 
 .
 
-i lurk often near bakery, rarely in a party! pls int with me.
+i lurk often near bakery, or youll find me somewhere random. if im randomly somewhere, i'm liekly uncomfortable
 
 always w2i unless my name says so
 
