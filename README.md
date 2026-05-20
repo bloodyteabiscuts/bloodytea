@@ -29,7 +29,7 @@ i'm always having public chat off, ALWAYS W2I unless my name says different.
 
 i m still growing, i can make mistakes, plz dont let that stop u from being my friend
 
-i dont block unless i need to, i'll likely block chat/requests. im paranoid when someone has "i block freely" in their bio :(
+i dont block unless i need to, i'll likely block chat/requests. im paranoid when someone has "i block freely" in their bio
 
 </details>
 
@@ -42,7 +42,7 @@ I type like i'm excited, but i dont rly feel much behind the screen ithink??? i 
 
 im sorry to whoever i hurt in the past im genuinely so srs rn PLZZZZ i wanna dm and figure things out if possible ty...
 
-im a copinglink/c'link of american ferryman from guts nd blackpowder... possible yume of klaus 👀 
+im a copinglink/c'link of american ferryman from guts nd blackpowder... a yumeshipper
 
 i love socialising, i might be weird to interact with at first, but i promise im nice...
 
