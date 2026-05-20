@@ -21,7 +21,7 @@ alt is [@teabiscuts](https://github.com/teabiscuts), follow back if u want
 
 dni: pro/darkship/fiction, irls. (<ins>*kins/supportive ids that're not problematic are ok!!!*</ins>), 
 
-caution: pt fandoms in general except historical ones, fruitcake shippers, roblox cosplayers unless i int first. THAT STUPID ARG WITH THAT SLIME PERSON PLZ IWEXTREME CAUTION
+caution: pt fandoms in general except historical ones, fruitcake shippers, roblox cosplayers unless i int first. the slime person arg ppl?? iwec. except friends
 
 int: g&b cosplayers, bloodytea/teabiscuts shippers, those r my otp ships. 
 
