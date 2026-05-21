@@ -27,9 +27,9 @@ interact: g&b cosplayers, friends. idc if u int if ure not in it, pls dont be in
 
 i'm always having public chat off, always w2i unless my name says different
 
-i m still growing, i can make mistakes, plz dont let that stop u from being my friend
+i m still growing, i can make mistakes, plz dont let that stop u from being my friend, you can tell me my wrong and i'll stop
 
-i dont block people unless i need to block someone
+i dont block people unless i *need* to block someone
 
 </details>
 
@@ -38,11 +38,11 @@ i dont block people unless i need to block someone
 
 .
 
-I type like i'm excited, but i dont rly feel much behind the screen ithink??? i emphasise words in all caps. liek " SO HES LIEK ____" and whatnot.....
+I type like i'm excited, but i dont rly feel much behind the screen lol, i emphasise words in all caps. liek " SO HES LIEK ____" and whatnot sometimes
 
-im sorry to whoever i hurt in the past im genuinely so srs rn PLZZZZ i wanna dm and figure things out if possible ty...
+im sorry to who i hurt in the past and I genuinely wanna apologise, IM SO SORRY/gen pls talk to me in ata we can dm
 
-im a copinglink/c'link of american ferryman from guts nd blackpowder... a yumeshipper
+im a copinglink/c'link of american ferryman from guts nd blackpowder... a yumeshipper too
 
 i love socialising, i might be weird to interact with at first, but i promise im nice...
 
