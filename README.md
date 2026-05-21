@@ -1,8 +1,8 @@
-mike or ameferryma or mayhaps valentine. i go by no pronouns, he/its for friends/followed.
-  
-innatentive adhd & heavily suspected schizoid personality disorder
+<ins>ameferryman</ins>, valentine, or mike
 
-rly defensive over ameferryman and klaus, if i talk abt them or if u do idm tho...
+no pronouns, he/its for moots on pt/git and frieds.
+  
+innatentive adhd & heavily suspected [SzPD](https://en.wikipedia.org/wiki/Schizoid_personality_disorder)
 
 minor, 13+, 17- . dniuid adults
 
@@ -15,23 +15,21 @@ i lurk often near bakery, or youll find me somewhere random. if im randomly some
 
 always w2i unless my name says so
 
-free c+h, unelss name says so, i talk A LOTTTT if ur a friend of mine
+free c+h, unless my name says so. i talk a lot if ur a friend of mine
 
-alt is [@teabiscuts](https://github.com/teabiscuts), follow back if u want
+alt is [@teabiscuts](https://github.com/teabiscuts)
 
-dni: pro/darkship/fiction, irls. (<ins>*kins/supportive ids that're not problematic are ok!!!*</ins>), 
+do not interact: pro/darkship/fiction, irls. (kins/supportive ids that're not problematic are ok), [full list here](https://rentry.co/meowliscute)
 
-caution: pt fandoms in general except historical ones, fruitcake shippers, roblox cosplayers unless i int first. mcyt / args , plz iwecaution unless friend
+interact with caution: pt fandoms in general except historical ones, fruitcake shippers, roblox cosplayers unless i int first. mcyt / args , plz iwecaution unless friend
 
-int: g&b cosplayers, bloodytea/teabiscuts shippers, those r my otp ships. 
+interact: g&b cosplayers, friends. idc if u int if ure not in it, pls dont be in the above tho
 
-i'm always having public chat off, ALWAYS W2I unless my name says different.
+i'm always having public chat off, always w2i unless my name says different
 
 i m still growing, i can make mistakes, plz dont let that stop u from being my friend
 
-i dont block unless i need to, i'll likely block chat/requests. im paranoid when someone has "i block freely" in their bio
-
-im probably sad a lot, close friends (aron + sky) can int, may add more ppl depending how long ive known you
+i dont block people unless i need to block someone
 
 </details>
 
