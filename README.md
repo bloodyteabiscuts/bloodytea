@@ -31,6 +31,8 @@ i m still growing, i can make mistakes, plz dont let that stop u from being my f
 
 i dont block unless i need to, i'll likely block chat/requests. im paranoid when someone has "i block freely" in their bio
 
+im probably sad a lot, close friends (aron + sky) can int, may add more ppl depending how long ive known you
+
 </details>
 
 <details closed>
@@ -73,6 +75,6 @@ unsorted
 
 </details>
 
-[rentry](https://rentry.co/ancientwounds) [rentry 2](https://rentry.co/devilishtea) [atabook](https://bloodytea.atabook.org/) [strawpage](https://unnamedprussianyaoi.straw.page/) [prns.page](https://en.pronouns.page/@bloodytea) [prns.cc](https://pronouns.cc/@bloodytea)
+[rentry](https://rentry.co/devilishtea) [rentry 2](https://rentry.co/ancientwounds) [atabook](https://bloodytea.atabook.org/) [strawpage](https://unnamedprussianyaoi.straw.page/) [prns.page](https://en.pronouns.page/@bloodytea) [prns.cc](https://pronouns.cc/@bloodytea)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jqi4ggf3dxjk4qpg6p4deelgim&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=992929&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
