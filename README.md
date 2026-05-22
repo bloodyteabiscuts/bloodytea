@@ -50,6 +50,8 @@ im a new graphic design dude... i still wanna learn more about it friends pls te
 
 i use tone indicators when i may seem unclear, i dont need them unless i ask abt it.. feel free to use them, but dont overuse them
 
+probably sad all the time ok
+
 </details>
 
 <details closed>
