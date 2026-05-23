@@ -52,6 +52,8 @@ i use tone indicators when i may seem unclear, i dont need them unless i ask abt
 
 probably sad all the time ok
 
+i really want to learn html and css for my neocities page. if anyone could reccomend a tutorial on youtube/a website, that would be greatly appreciated
+
 </details>
 
 <details closed>
