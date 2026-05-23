@@ -54,6 +54,8 @@ probably sad all the time ok
 
 i really want to learn html and css for my neocities page. if anyone could reccomend a tutorial on youtube/a website, that would be greatly appreciated
 
+PLZ TEACH ME HSYOTRY IDC WHAAAT U DO plz tell me fun facts or rant about it ill read ur text i want t learn
+
 </details>
 
 <details closed>
