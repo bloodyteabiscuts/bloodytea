@@ -1,4 +1,4 @@
-<ins>ameferryman</ins>, valentine, or mike
+<ins>ameferryman</ins> or valentine
 
 no pronouns, he/its for moots on pt/git and frieds.
   
