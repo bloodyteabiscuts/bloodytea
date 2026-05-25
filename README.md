@@ -32,7 +32,7 @@ iwcare, dniuf, dniuid, c+h, w2i, and occasionally sv are in my name. iwcare is m
 
 .
 
-hi, im probably sad a lot, or cuddling with some friends in ponytown.
+hi, im probably sad and alone a lot, or cuddling with some friends in ponytown. likely alone until it's really late (8pm-3am). My mental health has been declining, so please, dont feel bad to cuddle.
 
 i probably pick up stuff from friends (typing style, whatnot), i can accidentally copy, im so sorry if i do. i probably always interact with friends, i do try and type first, i'm also sometimes not very verbal, it's hard for me to type/talk when doing so. I don't know much terms other than semiverbal, so *please*, **please** educate me on terms!
 
