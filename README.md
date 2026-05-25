@@ -25,6 +25,8 @@ i dont block people unless i *need* to block someone, one person blocked I plan 
 
 iwcare, dniuf, dniuid, c+h, w2i, and occasionally sv are in my name. iwcare is my standard when i'm tired/on pt in general, dont be shy to int! others are self-explanatory.
 
+ummm i probably degrade myself for having bad ponies, even though they're decent at best, please teach me more styles
+
 </details>
 
 <details closed>
