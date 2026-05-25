@@ -4,7 +4,7 @@ no pronouns, he/its for moots on pt/git and frieds.
   
 innatentive adhd & heavily suspected [SzPD](https://en.wikipedia.org/wiki/Schizoid_personality_disorder)
 
-minor, 13+, 17- . dniuid adults
+minor, 13+, 17- . dniuid adults. [full dni/iwcaut/int list here (still wip)](https://rentry.co/meowliscute)
 
 im protective over american ferryman and stuff, i may also be unstable, free c+h unless my name says "dniuf" or whatever.
 
@@ -13,71 +13,53 @@ im protective over american ferryman and stuff, i may also be unstable, free c+h
 
 .
 
-i lurk often near bakery, or youll find me somewhere random. if im randomly somewhere, i'm liekly uncomfortable
+i lurk often near bakery, or youll find me somewhere random. if im randomly somewhere, i'm likely uncomfortable, or with a friend/overwhelmed/rarely overstimulated
 
-always w2i unless my name says so
+free c+h, unless my name says so. i talk a lot if ur a friend of mine!
 
-free c+h, unless my name says so. i talk a lot if ur a friend of mine
+i always have public chat off, always w2i unless my name says different
 
-alt is [@teabiscuts](https://github.com/teabiscuts)
+i'm still a minor, and i'm growing still. and kids like you and i (i think) can make mistakes! Please be aware of actions and correct me if i say something wrong, or do something wrong. I may get ebarassed, but I learn from mistakes.
+
+i dont block people unless i *need* to block someone, one person blocked I plan to apologise to. (i'm sorry to whoever i blocked.)
+
+iwcare, dniuf, dniuid, c+h, w2i, and occasionally sv are in my name. iwcare is my standard when i'm tired/on pt in general, dont be shy to int! others are self-explanatory.
+
+</details>
+
+<details closed>
+<summary>more pt info</summary>
+
+.
+
+hi, im probably sad a lot, or cuddling with some friends in ponytown.
+
+i probably pick up stuff from friends (typing style, whatnot), i can accidentally copy, im so sorry if i do. i probably always interact with friends, i do try and type first, i'm also sometimes not very verbal, it's hard for me to type/talk when doing so. I don't know much terms other than semiverbal, so *please*, **please** educate me on terms!
+
+im likely paranoid if i trust you or not. The people I suspected (so far 2/3) were bad people, so im sorry if i accuse you of anything. a bit of trust issues, because of the bad people. (ren was a pedo. dni ren)
+
+schizoid personality disorder/SzPD is heavily suspected. I have symptoms, 
+
+*like not forming intimate/close friendships*, *being a bit apathetic/"emotionless"*, *being on the ace spectrum*, *no motivation to do things (unless it's with friends)*, *probably in my own head*, *probably complain i'm bored or might speak weird if we do voice chat (though it's rare)*, *i may be seen as weird!* I do promise i'm kind!
+
+I may forget to reply to messages, adhd sucks and I get distracted easily, but i do reply a lot.
+
+discord is americanferryman, roblox is midn1ghtskys (chat range 18-21+), hmu!! Just notify/ask me first, wether it's ata or whispers. Please be a friend before friending those accounts, unless said different.
+
+alt is [@teabiscuts](https://github.com/teabiscuts), please teach me more about history, I love it but no one been explaining it to me, and I like looking at people rant, or hearing about it!! i struggle into getting interests thanks to specified symptoms above
+
+</details>
+
+<details closed>
+<summary>dni / iwcaution / int</summary>
+
+.
 
 do not interact: pro/darkship/fiction, irls. (kins/supportive ids that're not problematic are ok), [full list here](https://rentry.co/meowliscute)
 
 interact with caution: pt fandoms in general except historical ones, fruitcake shippers, roblox cosplayers unless i int first, ROBLOX FANDOMS IWEC UNLESS G&B. mcyt / args , plz iwecaution unless friend
 
-interact: g&b cosplayers, friends. idc if u int if ure not in it, pls dont be in the above tho
-
-i'm always having public chat off, always w2i unless my name says different
-
-i m still growing, i can make mistakes, plz dont let that stop u from being my friend, you can tell me my wrong and i'll stop
-
-i dont block people unless i *need* to block someone
-
-</details>
-
-<details closed>
-<summary>more info</summary>
-
-.
-
-I type like i'm excited, but i dont rly feel much behind the screen lol, i emphasise words in all caps. liek " SO HES LIEK ____" and whatnot sometimes
-
-im sorry to who i hurt in the past and I genuinely wanna apologise, IM SO SORRY/gen pls talk to me in ata we can dm
-
-im a copinglink/c'link of american ferryman from guts nd blackpowder... a yumeshipper too
-
-i love socialising, i might be weird to interact with at first, but i promise im nice...
-
-im a new graphic design dude... i still wanna learn more about it friends pls teach me ok
-
-i use tone indicators when i may seem unclear, i dont need them unless i ask abt it.. feel free to use them, but dont overuse them
-
-probably sad all the time ok
-
-i really want to learn html and css for my neocities page. if anyone could reccomend a tutorial on youtube/a website, that would be greatly appreciated
-
-PLZ TEACH ME HSYOTRY IDC WHAAAT U DO plz tell me fun facts or rant about it ill read ur text i want t learn
-
-</details>
-
-<details closed>
-<summary>stuff</summary>
-
-.
-
-some may be messed up/nsfw/g0ry so uhm be aware, this is still wip
-
-blinkies
-
-![](https://64.media.tumblr.com/2c9abed929b0b46c04c70629eeb44fb1/db6564cf1140779b-f9/s250x400/a41a2ecb8280dadfafb6326ce065fa467e205dab.gifv) ![](https://64.media.tumblr.com/be9725eadff697ce400b9af5029b54d9/db6564cf1140779b-7d/s250x400/40dd5f8a4e6e086905958e811e8be35cb532ec63.gifv) ![](https://64.media.tumblr.com/db1e88021b0d162fb5f2e2dc2fe03484/22cc1a3b7648d768-9c/s250x400/98267bfb77d917ee256f70f228999860e0800c4a.gifv)
-
-stamps
-
-![](https://64.media.tumblr.com/af2ba66b45bafdd05dde297dab3a41a0/b1b6c11a75f99e62-bb/s100x200/472b5bb0a8c16e282d50b723f853e027c7855540.pnj) ![](https://64.media.tumblr.com/5cf7278ee68fb8d22336e9ffe56246ee/b1b6c11a75f99e62-45/s100x200/2818361acc53c8649ec552f67e7a4cc46da59c87.pnj) ![](https://64.media.tumblr.com/c50bdf29db30a11b145ffa82f191ed31/3c74d06b377fdc9b-b2/s100x200/97fb2bb90fb707f0ff36f7031c8c90c3a2a1a675.pnj) ![](https://64.media.tumblr.com/6d93e9a35b6a379966f5b31d9b50a0bd/c5efce56bfb8d6ff-f6/s100x200/0fa294f2040dadb523b2b05e1e4725a2d27adebd.pnj) ![](https://64.media.tumblr.com/40b8dd3c17ccc3777267674ba60db2fa/cb3cdd609f4b887c-3a/s250x400/8b78cc2f1183b0332c0fbbdf2bfbd91bbc1398a3.gifv) ![](https://64.media.tumblr.com/61dcb359252cee5fe22636112f5b1239/cb3cdd609f4b887c-11/s100x200/b7a8da0cb31bdce5672b78c43e99321827d51aad.pnj) ![](https://64.media.tumblr.com/68bb9e71ec030bfeb579002c6761aa36/8574ac30b86e31bd-b7/s100x200/3aaa63cd8b7fdc2b01245e41dca4a67de92ddbda.gifv)
-
-unsorted
-
-![base]()
+interact: g&b cosplayers, friends. idc if u int if ure not in it, pls dont be in the full dni
 
 </details>
 
