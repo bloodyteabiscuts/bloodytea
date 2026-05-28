@@ -67,6 +67,13 @@ interact: g&b cosplayers, friends. idc if u int if ure not in it, pls dont be in
 
 </details>
 
+<details closed>
+<summary>general info</summary>
+
+.
+
+umm wip ok? sorry
+
 [rentry](https://rentry.co/devilishtea) [rentry 2](https://rentry.co/ancientwounds) [atabook](https://bloodytea.atabook.org/) [strawpage](https://unnamedprussianyaoi.straw.page/) [strawpage 2](https://swiftlyoliver.straw.page/) [prns.page](https://en.pronouns.page/@bloodytea) [prns.cc](https://pronouns.cc/@bloodytea)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jqi4ggf3dxjk4qpg6p4deelgim&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=992929&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
