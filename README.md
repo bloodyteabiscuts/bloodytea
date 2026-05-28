@@ -27,6 +27,8 @@ iwcare, dniuf, dniuid, c+h, w2i, and occasionally sv are in my name. iwcare is m
 
 ummm i probably degrade myself for having bad ponies, even though they're decent at best, please teach me more styles
 
+um when we cuddle, please coverme... or ill mov e to back of u unless u go behind me
+
 </details>
 
 <details closed>
