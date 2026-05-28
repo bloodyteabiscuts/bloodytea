@@ -73,6 +73,7 @@ interact: g&b cosplayers, friends. idc if u int if ure not in it, pls dont be in
 .
 
 umm wip ok? sorry
+</details>
 
 [rentry](https://rentry.co/devilishtea) [rentry 2](https://rentry.co/ancientwounds) [atabook](https://bloodytea.atabook.org/) [strawpage](https://unnamedprussianyaoi.straw.page/) [strawpage 2](https://swiftlyoliver.straw.page/) [prns.page](https://en.pronouns.page/@bloodytea) [prns.cc](https://pronouns.cc/@bloodytea)
 
