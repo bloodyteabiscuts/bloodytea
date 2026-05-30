@@ -27,7 +27,7 @@ iwcare, dniuf, dniuid, c+h, w2i, and occasionally sv are in my name. iwcare is m
 
 ummm i probably degrade myself for having bad ponies, even though they're decent at best, please teach me more styles
 
-um when we cuddle, please coverme... or ill mov e to back of u unless u go behind me
+um when we cuddle, please coverme... or ill mov e to back of u unless u go behind me. i really adore group cuddling so please dont be afraid to cuddle when I have another person
 
 </details>
 
@@ -64,19 +64,6 @@ do not interact: pro/darkship/fiction, irls. (kins/supportive ids that're not pr
 interact with caution: pt fandoms in general except historical ones, fruitcake shippers, roblox cosplayers unless i int first, ROBLOX FANDOMS IWEC UNLESS G&B. mcyt / args , plz iwecaution unless friend
 
 interact: g&b cosplayers, friends. idc if u int if ure not in it, pls dont be in the full dni
-
-</details>
-
-<details closed>
-<summary>general info</summary>
-
-.
-
-i can take things seriously and i may need tonetags sometimes umm ok
-
-wip
-
-
 
 </details>
 
