@@ -19,9 +19,9 @@ i always have public chat off, always w2i unless my name says different
 
 i'm still a minor, and i'm growing still. and kids like you and i (i think) can make mistakes! Please be aware of actions and correct me if i say something wrong, or do something wrong. I may get ebarassed, but I learn from mistakes.
 
-i dont block people unless i *need* to block someone, one person blocked I plan to apologise to. (i'm sorry to whoever i blocked.)
+i dont block people unless i *need* to block someone, no one blocked currently i think
 
-iwcare, dniuf, dniuid, c+h, w2i, and occasionally sv are in my name. iwcare is my standard when i'm tired/on pt in general, dont be shy to int! others are self-explanatory.
+iwcare, dniuf, dniuid, c+h, w2i, and ***EXXTREMELY*** occasionally sv are in my name. iwcare is my standard when i'm tired/on pt in general, dont be shy to int! others are self-explanatory.
 
 ummm i probably degrade myself for having bad ponies, even though they're decent at best, please teach me more styles
 
