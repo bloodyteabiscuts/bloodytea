@@ -55,7 +55,7 @@ alt is [@teabiscuts](https://github.com/teabiscuts), please teach me more about 
 
 .
 
-do not interact: pro/darkship/fiction, irls, two time fictkins/irls. (they're an insane cultists not something silly to label!!) ((kins/supportive ids that're not problematic are ok)), [full list here](https://rentry.co/meowliscute)
+do not interact: pro/darkship/fiction, irls, two time fictkins/irls. (they're an insane cultist, not something silly to label!! plz know about kinning) ((kins/supportive ids that're not problematic are ok)), [full list here](https://rentry.co/meowliscute)
 
 interact with caution: pt fandoms in general except historical ones, fruitcake shippers, roblox cosplayers unless i int first, ROBLOX FANDOMS IWEC UNLESS G&B. mcyt / args , plz iwecaution unless friend
 
