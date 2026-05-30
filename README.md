@@ -1,4 +1,4 @@
-<ins>ameferryman</ins> or valentine
+<i>ameferryman</i> or valentine/val. mike for friends
 
 no pronouns, he/its for moots on pt/git and frieds.
   
@@ -30,7 +30,7 @@ um when we cuddle, please coverme... or ill mov e to back of u unless u go behin
 </details>
 
 <details closed>
-<summary>more pt info</summary>
+<summary>more ponytown</summary>
 
 .
 
@@ -42,7 +42,7 @@ im likely paranoid if i trust you or not. The people I suspected (so far 2/3) we
 
 schizoid personality disorder/SzPD is heavily suspected. I have symptoms, 
 
-*like not forming intimate/close friendships*, *being a bit apathetic/"emotionless"*, *being on the ace spectrum*, *no motivation to do things (unless it's with friends)*, *probably in my own head*, *probably complain i'm bored or might speak weird if we do voice chat (though it's rare)*, *i may be seen as weird!* I do promise i'm kind!
+<ins>like not forming intimate relationships/close friendships</ins>, being a bit apathetic/"emotionless", being on the ace spectrum, no interest to do things (unless it's with friends), **probably** in my own head, complain i'm bored, might speak weird if we do voice chat (though it's rare), i may be seen as weird, I do promise i'm kind when u know me better
 
 I may forget to reply to messages, adhd sucks and I get distracted easily, but i do reply a lot.
 
