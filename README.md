@@ -34,26 +34,24 @@ um when we cuddle, please coverme... or ill mov e to back of u unless u go behin
 
 .
 
-hi, im probably sad and alone a lot, or cuddling with some friends in ponytown. likely alone until it's really late (8pm-3am). My mental health has been declining, so please, dont feel bad to cuddle.
+hi, im probably sad and alone a lot, or cuddling with some friends in ponytown. likely alone until it's late, or not. My mental health has been declining, so please, dont feel bad to cuddle.
 
-i probably pick up stuff from friends (typing style, whatnot), i can accidentally copy, im so sorry if i do. i probably always interact with friends, i do try and type first, i'm also sometimes not very verbal, it's hard for me to type/talk when doing so. I don't know much terms other than semiverbal, so *please*, **please** educate me on terms!
+i probably pick up stuff from friends (typing style, whatnot), i can accidentally copy, im so sorry if i do. i probably always interact with friends, i do try and type first but its a bit hard
 
 im likely paranoid if i trust you or not. The people I suspected (so far 2/3) were bad people, so im sorry if i accuse you of anything. a bit of trust issues, because of the bad people. (ren was a pedo. dni ren)
 
-schizoid personality disorder/SzPD is heavily suspected. I have symptoms, 
+schizoid personality disorder/SzPD is heavily suspected. I have symptoms, <ins>like not forming intimate relationships/close friendships</ins>, being a bit apathetic/"emotionless", being on the ace spectrum, no interest to do things (unless it's with friends), **probably** in my own head, complain i'm bored, might speak weird if we do voice chat (though it's rare), i may be seen as weird, I do promise i'm kind when u know me better
 
-<ins>like not forming intimate relationships/close friendships</ins>, being a bit apathetic/"emotionless", being on the ace spectrum, no interest to do things (unless it's with friends), **probably** in my own head, complain i'm bored, might speak weird if we do voice chat (though it's rare), i may be seen as weird, I do promise i'm kind when u know me better
+I may forget to reply to messages, adhd sucks and I get distracted easily, but i *do* reply a lot :D
 
-I may forget to reply to messages, adhd sucks and I get distracted easily, but i do reply a lot.
-
-discord is americanferryman, roblox is midn1ghtskys (chat range 18-21+), hmu!! Just notify/ask me first, wether it's ata or whispers. Please be a friend before friending those accounts, unless said different.
+discord is americanferryman, roblox is midn1ghtskys (chat range 18-21+), hmu!! Just notify/ask me first, wether it's ata or whispers. Please be a friend before friending those accounts, unless said different. i reccomend getting discord before roblox i think
 
 alt is [@teabiscuts](https://github.com/teabiscuts), please teach me more about history, I love it but no one been explaining it to me, and I like looking at people rant, or hearing about it!! i struggle into getting interests thanks to specified symptoms above
 
 </details>
 
 <details closed>
-<summary>dni / iwcaution / int</summary>
+<summary>dni / iwcaution / int / before u int i think</summary>
 
 .
 
@@ -62,6 +60,18 @@ do not interact: pro/darkship/fiction, irls. (kins/supportive ids that're not pr
 interact with caution: pt fandoms in general except historical ones, fruitcake shippers, roblox cosplayers unless i int first, ROBLOX FANDOMS IWEC UNLESS G&B. mcyt / args , plz iwecaution unless friend
 
 interact: g&b cosplayers, friends. idc if u int if ure not in it, pls dont be in the full dni
+
+.
+
+byi:
+
+um i can be weird or unstable a lot, ponytown gives me dread when i play it... please int unless im on a difftab i think
+
+im chatty a lot, but when im overwhelmed/too emotional (extremely angry, sad, irritable) i can feel less verbal..... ok?
+
+um if u call me she i will flame u except friends ok? idc if ur a friend infact i encourage it a bit, only occasianlly
+
+im so haooy to be friends with you oh fod please be my friend yes we ca talk to eachotehr yes we can call ill do anything for friends ithink
 
 </details>
 
