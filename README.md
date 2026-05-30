@@ -6,8 +6,6 @@ innatentive adhd & heavily suspected [SzPD](https://en.wikipedia.org/wiki/Schizo
 
 minor, 13+, 17- . dniuid adults. [full dni/iwcaut/int list here (still wip)](https://rentry.co/meowliscute)
 
-im protective over american ferryman and stuff, i may also be unstable, free c+h unless my name says "dniuf" or whatever.
-
 <details closed>
 <summary>ponytown</summary>
 
