@@ -75,6 +75,8 @@ im so haooy to be friends with you oh fod please be my friend yes we ca talk to 
 
 i rarely curse, but when i do im probably mad/explaining something lul
 
+im affected by others moods arund me a lot so if ur hapy near me i am too ,, plz
+
 </details>
 
 [rentry](https://rentry.co/devilishtea) [rentry 2](https://rentry.co/ancientwounds) [atabook](https://bloodytea.atabook.org/) [strawpage](https://unnamedprussianyaoi.straw.page/) [prns.page](https://en.pronouns.page/@bloodytea) [prns.cc](https://pronouns.cc/@bloodytea)
