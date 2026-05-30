@@ -1,6 +1,6 @@
 <i>ameferryman</i> or valentine/val. mike for friends
 
-no pronouns, he/its for moots on pt/git and frieds.
+no pronouns, he/she/its for moots on pt/git and frieds.
   
 innatentive adhd & heavily suspected [SzPD](https://en.wikipedia.org/wiki/Schizoid_personality_disorder)
 
