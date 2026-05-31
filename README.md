@@ -21,11 +21,11 @@ i'm still a minor, and i'm growing still. and kids like you and i (i think) can 
 
 i dont block people unless i *need* to block someone, no one blocked currently i think
 
-iwcare, dniuf, dniuid, c+h, w2i, and ***EXXTREMELY*** occasionally sv are in my name. iwcare is my standard when i'm tired/on pt in general, dont be shy to int! others are self-explanatory.
+iwcare, dniuf, dniuid, c+h, w2i, and <ins>***EXXTREMELY***</ins> occasionally sv are in my name. iwcare is my standard when i'm tired/on pt in general, dont be shy to int! others are self-explanatory.
 
 ummm i probably degrade myself for having bad ponies, even though they're decent at best, please teach me more styles
 
-um when we cuddle, please coverme... or ill mov e to back of u unless u go behind me. i really adore group cuddling so please dont be afraid to cuddle when I have another person
+um when we cuddle, please coverme... or ill move to back of u unless u go behind me. i really adore group cuddling so please dont be afraid to cuddle when I have another person
 
 </details>
 
@@ -34,9 +34,9 @@ um when we cuddle, please coverme... or ill mov e to back of u unless u go behin
 
 .
 
-hi, im probably sad and alone a lot, or cuddling with some friends in ponytown. likely alone until it's late, or not. My mental health has been declining, so please, dont feel bad to cuddle.
+hi, im probably sad a lot, or cuddling with some friends in ponytown. likely alone until it's late/the afternoon, or not. My mental health has been declining, so please, dont feel bad to cuddle.
 
-i probably pick up stuff from friends (typing style, whatnot), i can accidentally copy, im so sorry if i do. i probably always interact with friends, i do try and type first but its a bit hard
+i probably pick up stuff from friends (typing style, whatnot), i can accidentally copy, im so sorry if i do!! i probably always interact with friends, i do try and type first but its a bit hard
 
 im likely paranoid if i trust you or not. The people I suspected (so far 2/3) were bad people, so im sorry if i accuse you of anything. a bit of trust issues, because of the bad people. (ren was a pedo. dni ren)
 
@@ -55,11 +55,11 @@ alt is [@teabiscuts](https://github.com/teabiscuts), please teach me more about 
 
 .
 
-do not interact: pro/darkship/fiction, irls, two time fictkins/irls. (they're an insane cultist, not something silly to label!! plz know about kinning) ((kins/supportive ids that're not problematic are ok)), [full list here](https://rentry.co/meowliscute)
+do not interact: pro/darkship/fiction, irls, two time fictkins/irls. (they're an insane cultist, not somerobloxian silly to label!! plz know about kinning) ((kins/supportive ids that're not problematic are ok)), [full list here](https://rentry.co/meowliscute)
 
-interact with caution: pt fandoms in general except historical ones, fruitcake shippers, roblox cosplayers unless i int first, ROBLOX FANDOMS IWEC UNLESS G&B. mcyt / args , plz iwecaution unless friend
+interact with caution: pt fandoms in general except historical ones, fruitcake shippers, roblox cosplayers unless i int first, ROBLOX FANDOMS IWEC UNLESS FRIEND/I INT FIRST. MINECRAFT ARG LIKERS ARE GENUINELY THIN ICE **unless friends**. sorry my friend was a n4z1 and liked sawtde? ithink??
 
-interact: g&b cosplayers, friends. idc if u int if ure not in it, pls dont be in the full dni
+interact: g&b cosplayers, friends, thats abt it. just dont be in the dni/iwcaution please
 
 .
 
@@ -69,15 +69,15 @@ um i can be weird or unstable a lot, ponytown gives me dread when i play it... p
 
 im chatty a lot, but when im overwhelmed/too emotional (extremely angry, sad, irritable) i can feel less verbal..... ok?
 
-um if u call me she i will flame u except friends ok? idc if ur a friend infact i encourage it a bit, only occasianlly
+um if u call me she i will flame u except friends ok? idc if ur a friend infact i encourage it
 
 im so haooy to be friends with you oh fod please be my friend yes we ca talk to eachotehr yes we can call ill do anything for friends ithink
 
-i rarely curse, but when i do im probably mad/explaining something lul
+i rarely curse, but when i do im probably mad/explaining/quoting something lul
 
-im affected by others moods arund me a lot so if ur hapy near me i am too ,, plz
+im affected by others moods arund me a lot so if ur hapy near me i am too ,, plz know this ithink
 
-i know english only, sorry
+i know english only, sorry but i rly wanna learn another language
 
 </details>
 
