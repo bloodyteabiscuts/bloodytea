@@ -77,8 +77,6 @@ i rarely curse, but when i do im probably mad/explaining something lul
 
 im affected by others moods arund me a lot so if ur hapy near me i am too ,, plz
 
-i follow cool people, or people i like. my alt follows ppl randomly ok
-
 i know english only, sorry
 
 </details>
