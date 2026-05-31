@@ -79,6 +79,8 @@ im affected by others moods arund me a lot so if ur hapy near me i am too ,, plz
 
 i follow cool people, or people i like. my alt follows ppl randomly ok
 
+i know english only, sorry
+
 </details>
 
 [rentry](https://rentry.co/devilishtea) [rentry 2](https://rentry.co/ancientwounds) [atabook](https://bloodytea.atabook.org/) [strawpage](https://unnamedprussianyaoi.straw.page/) [prns.page](https://en.pronouns.page/@bloodytea) [prns.cc](https://pronouns.cc/@bloodytea)
