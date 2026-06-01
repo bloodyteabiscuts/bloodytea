@@ -4,7 +4,7 @@ no pronouns, he/she/its for moots on pt/git and frieds.
   
 innatentive adhd & heavily suspected [SzPD](https://en.wikipedia.org/wiki/Schizoid_personality_disorder)
 
-minor, 13+, 17- . dniuid adults. [full dni/iwcaut/int list here (still wip)](https://rentry.co/meowliscute)
+minor, 13+, 16- . dniuid adults. [full dni/iwcaut/int list here (still wip)](https://rentry.co/meowliscute)
 
 <details closed>
 <summary>ponytown</summary>
