@@ -48,6 +48,8 @@ discord is americanferryman, roblox is midn1ghtskys (chat range 18-21+), hmu!! J
 
 alt is [@teabiscuts](https://github.com/teabiscuts), please teach me more about history, I love it but no one been explaining it to me, and I like looking at people rant, or hearing about it!! i struggle into getting interests thanks to specified symptoms above
 
+hello andy if u see this eyes emoji
+
 </details>
 
 <details closed>
