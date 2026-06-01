@@ -83,6 +83,6 @@ i WILL mention tung tung tung sahur/triple t in dms if u add me.
 
 </details>
 
-[rentry](https://rentry.co/devilishtea) [rentry 2](https://rentry.co/ancientwounds) [atabook](https://bloodytea.atabook.org/) [strawpage](https://unnamedprussianyaoi.straw.page/) [prns.page](https://en.pronouns.page/@bloodytea) [prns.cc](https://pronouns.cc/@bloodytea)
+[rentry](https://rentry.co/devilishtea) [rentry 2](https://rentry.co/ancientwounds) [rentry 3..](https://rentry.co/etherealhaze) [atabook](https://bloodytea.atabook.org/) [strawpage](https://unnamedprussianyaoi.straw.page/) [prns.page](https://en.pronouns.page/@bloodytea) [prns.cc](https://pronouns.cc/@bloodytea)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jqi4ggf3dxjk4qpg6p4deelgim&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=992929&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
