@@ -1,3 +1,5 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=18&pause=1000&color=2A51F7&multiline=true&repeat=false&width=435&lines=he+was+a+creep.;scary%2C+right%3F)](https://git.io/typing-svg)
+
 <i>ameferryman</i> or valentine/val. mike for friends
 
 no pronouns, he/she/its for moots on pt/git and frieds.
