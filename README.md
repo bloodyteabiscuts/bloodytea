@@ -59,7 +59,8 @@ hello andy if u see this eyes emoji
 
 .
 
-do not interact: pro/darkship/fiction, [irls](https://trueirlinfo.carrd.co/#), two time/any cult fictkins/irls. (please dni because i think you're genuinely insane and stuff.) ((kins/supportive ids that're not problematic are ok)), [full list here](https://rentry.co/meowliscute)
+do not interact: pro/darkship/fiction, [irls](https://trueirlinfo.carrd.co/#), two time/any cult fictkins/irls. (please dni because i think you're genuinely insane and stuff.) ((kins/supportive ids that're not problematic are ok)), ANY ASYM GAME FANDOM. DNIUID ROBLOX COSPLAYERS. DNI. DNI. I HATE ROBLOX FANDOM. DNI. DNI. DNIUF DNIUID, DNIIIIIIIIIIIIIII
+[full list here](https://rentry.co/meowliscute)
 
 interact with caution: pt fandoms in general except historical ones, fruitcake shippers, roblox cosplayers unless i int first, ROBLOX FANDOMS IWEC UNLESS FRIEND/I INT FIRST. MINECRAFT ARG LIKERS ARE GENUINELY THIN ICE **unless friends**. sorry my friend was a n4z1 and liked sawtde? ithink??
 
